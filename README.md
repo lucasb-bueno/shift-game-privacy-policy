@@ -1,0 +1,1 @@
+# shift-game-privacy-policy
